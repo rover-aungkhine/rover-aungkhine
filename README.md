@@ -8,7 +8,7 @@ My ultimate goal is to become a professional data analyst and help business grow
 
 🛣️ Wanna explore more about me? ➡︎ [My Personal Blog](https://digitalrovermm.blogspot.com/)
 
-📲 Connect with me on IG ➡︎ [@Digital-Rover]((https://instagram.com/digitalrover_ig/ )
+📲 Connect with me on IG ➡︎ [@Digital-Rover](https://www.instagram.com/digitalrover_ig/)
 
 🏢 Daily Tips on LinkedIn ➡︎ [@Aung-Khine-Moe](https://www.linkedin.com/in/aung-khine-moe/)
 
